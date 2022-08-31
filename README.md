@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @shijizhe
 - 👀 I’m interested in riding,climbing and listening music.
 - 🌱 I’m currently learning Vue coding
-- 📫 How to reach me: ***********
-
+- 📫 How to reach me: shijizhe@foxmail.com
+- :mortar_board: UPC
+- :flags: Music has power,Technology changes the world!
