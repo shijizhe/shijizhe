@@ -1,5 +1,5 @@
 * 👋 Hi, I’m @shijizhe
-* 👀 I’m interested in riding, climbing and listening to music.
+* 💖 I’m interested in riding, climbing and listening to music.
 * 🎓 UPC(Bachelor) | UESTC(Master currently)
 * 📫 How to reach me: shijizhe@foxmail.com
 * 🎏 Music has power,Technology changes the world!
